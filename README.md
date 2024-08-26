@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @heiliaochiguawang119
 -黑料吃瓜，每天爆料吃瓜就在：
 
--免翻墙入口：[blcg01.com](https://blcg01.com)
+-免翻墙入口：[blcg01.com](https://blcg01.com) （如无法进入可以改变数字，懂得都懂）
 
--备用入口：[gua05.com](https://gua05.com)
+-备用入口：[gua05.com](https://gua05.com) （如无法进入可以改变数字，懂得都懂）
 
 -永久入口需翻墙：[www.hlj.fun](https://www.hlj.fun)
 
