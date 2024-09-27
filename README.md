@@ -3,9 +3,9 @@
 
 黑料吃瓜，每天爆料吃瓜就在：
 
--免翻墙入口：[ablw05.com](https://www.ablw05.com) （如无法进入可以改变数字，懂的都懂）
+-免翻墙入口：[ablw10.com](https://www.ablw10.com) （如无法进入可以改变数字，懂的都懂）
 
--备用入口：[ablw03.com](https://www.ablw03.com) （如无法进入可以改变数字，懂的都懂）
+-备用入口：[ablw06.com](https://www.ablw06.com) （如无法进入可以改变数字，懂的都懂）
 
 -永久入口需翻墙：[www.hlj.fun](https://www.hlj.fun)
 
