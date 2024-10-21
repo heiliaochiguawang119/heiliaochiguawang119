@@ -3,15 +3,15 @@
 
 黑料吃瓜，每天爆料吃瓜就在：
 
--免翻墙入口：[ablw13.com](https://www.ablw13.com) （如无法进入可以改变数字，懂的都懂）
+-免翻墙入口：[ablw21.com](https://www.ablw13.com) （如无法进入可以改变数字，懂的都懂）
 
--备用入口：[ablw12.com](https://www.ablw12.com) （如无法进入可以改变数字，懂的都懂）
+-备用入口：[ablw20.com](https://www.ablw12.com) （如无法进入可以改变数字，懂的都懂）
 
 -永久入口需翻墙：[www.hlj.fun](https://www.hlj.fun)
 
 -官方免费Q群,加入免迷路:[点击加入](http://c.wiwji52.cn/s/VnSe)
 
--官方推特：https://x.com/hlcg_mrds666
+-官方推特：https://x.com/cgblw01fun
 
 -官方电报（telegram）群：https://t.me/bbllccgg
 
